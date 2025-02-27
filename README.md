@@ -1,4 +1,4 @@
-# ChatGPT 中文版：教你一秒钟在国内用上ChatGPT、GPT-4o、o1、o3
+# ChatGPT 中文版：教你一秒钟在国内用上ChatGPT、GPT-4o、o1、o3 
 
 > **更新时间： 2025/02/27**   
 **全面掌握 ChatGPT 中文版，无需翻墙即可体验 GPT-4 与多功能服务！**    
